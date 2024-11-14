@@ -1,0 +1,2 @@
+# umszkihoz
+Legendas kriston orainak
